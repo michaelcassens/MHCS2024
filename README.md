@@ -7,6 +7,3 @@
 [Smash Twitch](https://www.twitch.tv/umt_esports2)
 
 [Rocket League Twitch](https://www.twitch.tv/umt_esports3)
-
-
-
