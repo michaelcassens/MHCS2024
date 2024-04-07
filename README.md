@@ -6,9 +6,13 @@
 
 [Current Overwatch2 Bracket](https://mhscs.leagueos.gg/league/seasons/UwZ4OjSq2KASHaHC15vp/stages/0fvn633a170ql91ni466981ru)
 
+<hr>
+
 [Smash Twitch](https://www.twitch.tv/umt_esports2)
 
 [Current Smash Bracket](https://mhscs.leagueos.gg/league/seasons/2BVzBhXl0SvS3KuLSJLN/stages/ddd0ave5mlvbcuol27nh3pfgd )
+
+<hr>
 
 [Rocket League Twitch](https://www.twitch.tv/umt_esports3)
 
