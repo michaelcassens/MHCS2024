@@ -1,6 +1,6 @@
 # Montana High School Championship Series
 
-![Saturuday](SaturdayApril6.png)
+![Saturuday](SundayApril7.png)
 
 [Overwatch Twitch](https://www.twitch.tv/umt_esports)
 
